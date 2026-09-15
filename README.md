@@ -241,4 +241,4 @@ Dragon Age: Inquisition is provided as a complete free version with all features
 Dive into the world of Dragon Age: Inquisition today! Download now and embark on an unforgettable journey through Thedas.
 
 ---
-**Last updated:** 2026-09-15 14:37:10 UTC
+**Last updated:** 2026-09-15 18:41:34 UTC
